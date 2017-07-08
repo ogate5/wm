@@ -7,7 +7,7 @@
 本页如打不开，请复制上面网址到谷歌浏览器<br/>
 苹果用户直接复制到苹果自带浏览器打开<br/>
 ◆谷歌浏览器安卓版 https://chrome.cn.uptodown.com/android <br/>
-◆谷歌浏览器windows版https://google-chrome.cn.uptodown.com/windows <br/>
+◆谷歌浏览器windows版 https://google-chrome.cn.uptodown.com/windows <br/>
 ◆谷歌浏览器苹果版 https://chrome.cn.uptodown.com/iphone <br/>
 ◆谷歌浏览器Mac版 https://google-chrome.cn.uptodown.com/mac <br/>
 国产浏览器监控网民、屏蔽网页、广告垃圾多，请卸载<br/>
